@@ -1,3 +1,3 @@
-# Cyberpunk-
+# Cyberpunk
 Cyberpunk stories
 coming soon
